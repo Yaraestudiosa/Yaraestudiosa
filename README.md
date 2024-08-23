@@ -12,4 +12,4 @@ yaraestudiosa@gmail.com
 
 @_oliveira_yara
 
-![] (https://medial.tenor.com/m/ofKKbAiVczQAAAAC/gojo-gojo-saotoru.gif)
+![](https://media1.tenor.com/m/ofKKbAiVczQAAAAC/gojo-gojo-saotoru.gif)
